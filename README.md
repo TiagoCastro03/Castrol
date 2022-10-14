@@ -6,3 +6,5 @@ yeeee boyyyy
 
 
 O castrol quando vê lolis até fica maluco
+
+Cala a boca e abre o www.krunker.io
